@@ -1,1 +1,0 @@
-# linking-assistive.github.io
